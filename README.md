@@ -10,8 +10,8 @@ If you are searching telegram movie channel link for new hindi, punjabi, bollywo
 | Bollywood Movies | [Join Now](https://telegram.me/hd99flix) |
 | Punjabi Movies      | [Join Now](https://telegram.me/hd99flix) |
 | Hollywood Movies      | [Join Now](https://telegram.me/hd99flix) |
-| South indian Movies         | [Join Now](https://telegram.me/hd99flix) |
-| HD99Flix Group               | [Join Now](https://telegram.me/hd99flix) |
+| South indian Movies         | [Join Now](https://telegram.dog/hd99flix) |
+| HD99Flix Group               | [Join Now](https://t.me/hd99flix) |
 | HD99flix                    | [Join Now](https://telegram.me/hd99flix) |
 
 > **Note**: We are just providing Telegram channel links that are already available on the internet. We don't own anything. Sharing is caring.
